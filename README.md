@@ -1,2 +1,2 @@
 # Resume
-All about my resume
+About me
